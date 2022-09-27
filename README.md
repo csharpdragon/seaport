@@ -10,6 +10,6 @@ OpenSea, Seaport Contract, NFT Draner
 </p>
 
 
-# If you want to get the source code, please contact me 
+# If you want to get the source code, please contact me , you will get with cheap price
 # Skype: live:.cid.bbb10fbdfabd4dd6
 # mail: pdragon0512@gmail.com
